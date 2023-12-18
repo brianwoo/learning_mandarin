@@ -1,4 +1,4 @@
-# title: Learning Mandarin
+# Learning Mandarin
 
 ## Mandarin 1 Assignment #1
 
