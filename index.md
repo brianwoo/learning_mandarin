@@ -1,0 +1,26 @@
+# Learning Mandarin
+
+## Mandarin 1 Assignment #1
+
+Today, we mainly focused on the content of ‘中文’ unit 1.  Students learned the pronunciation and writing of Chinese characters for "一、二、三、四、五、六、七、八、九、十、百", and they also learned how to read the characters "又, 两, 水, 中, 不, 见." In class, we also studied the pronunciation and writing methods of the six single vowels in Hanyu Pinyin: a, o, e, i, u, ü. During the lesson, I introduced the usage of Tianzige (田字格) and Mizige (米字格) when writing Chinese characters and the usage of the four-line three-grid format when writing Pinyin. (you can also use a three-line two-grid format for Pinyin writing practice.)
+
+Based on my observations during the class, I would like to remind students that when writing Chinese characters, horizontal strokes“一” should be written from left to right, and vertical strokes “|” should be written from top to bottom. Also, please pay attention to the stroke order of each character, which generally follows the sequence of "from left to right, from top to bottom" (you can refer to page 92 of the textbook for more details).
+
+After this lesson, I would like to ask students to complete the following exercises:
+1. Listen to the audio recordings and practice pronouncing the 17 new words from unit 1 as well as the two nursery rhymes on page 5.
+2. Complete exercises from page 1 to page 12 in Workbook 1A.
+3. Complete exercises 2, 3, and 4 from Unit 1 of the Hanyu Pinyin workbook, and exercises 2, 3, and 4 from Unit2.
+4. Review the pronunciation and writing of "一、二、三、四、五、六、七、八、九、十、百" and review the pronunciation of "又, 两, 水, 中, 不, 见." We will have a dictation in the next class.
+5. Preview "Chinese" unit2 and "Hanyu Pinyin" unit3 and unit 4.
+
+For the next class, please make sure to bring pencils, textbooks, and workbooks. Also, prepare a Tianzige or Mizige notebook and a Pinyin notebook for your child, or you can print the "Pinyin Tianzige Template" attached to this email.
+
+I have attached two audio files related to the lesson for your reference.
+
+We will have four tests throughout this academic year, and the first test is scheduled for October 28th. Student attendance will account for 5% of the overall grade, so please try to avoid any absences.
+
+If you have any questions or if your child encounters any difficulties during their regular review, please feel free to email me.
+
+Have a wonderful weekend!
+
+Zhenchong
