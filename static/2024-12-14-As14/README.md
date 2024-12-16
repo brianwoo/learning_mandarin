@@ -1,0 +1,35 @@
+Hi parents and students,
+
+Today we continued with Lesson 6. In class, we practiced using the sentence patterns “我（不）会...” (I can/cannot...) and “我学会了...” (I have learned...) to answer the questions “你会做什么？” (What can you do?) and “你学会了什么？” (What have you learned?). At home, parents can use these two questions to ask your child and encourage them to practice more.
+
+The lesson text was a tongue twister with a storyline. By reading it aloud, we experienced the rhythm of Chinese and understood the importance of tones in pronunciation. Before practicing the tongue twister, we learned the pronunciation and meaning of 7 new Chinese characters: 毛, 抱, 猫, 破, 赶, 苗, and 捉. We also reviewed the radicals “扌” (related to hand actions) and “走” (related to movement) and introduced a new radical, “犭,” which is often used for words related to animals or their actions.
+
+Additionally, we revisited the character “还” and its two pronunciations. Previously, we learned “hái,” which means “still” or “also,” while in this tongue twister, it is pronounced “huán,” meaning “to return.” Please remind your child to practice distinguishing these two sounds.
+
+After class, please complete the following exercises：
+1.Listen to the recording and read along with Lesson 6 in the Chinese textbook. Memorize the poem "Birds Fly Freely".
+2.Complete the “汉字书写练习” for Lesson 6 (see email attachment).
+3.If you haven’t finished the exercises for Lesson 6 in Workbook 2B from last week, please complete them before the next class.
+
+There will be no classes on December 21, December 28, and January 4. Classes will resume on January 11, 2025. Please keep practicing at home.
+
+Wishing everyone a joyful holiday!
+
+Zhen
+
+家长朋友们、同学们，
+
+今天我们继续学习了第6课的内容。我们通过练习对话，学会了如何使用“我（不）会...”和：“我学会了....”来回答问句“你会做什么？”和“你学会了什么？”在家里，家长朋友们也可以多用这两个问句提问孩子。
+
+今天的课文是一篇带故事情节的绕口令。通过朗读绕口令，我们体验了汉语的音律和声调的变化，感受到了声调在汉语表达中的重要性。在学习绕口令之前，我们学习了7个新汉字的读音和含义：毛、抱、猫、破、赶、苗、捉。复习了偏旁部首“扌”和“走”，并新学习了部首“犭”（通常表示与动物有关的事物或动作）。之前的课程中，我们学习了“还”的读音hái，表示“仍然”或“还要”的意思；在这篇绕口令中，“还”读作huán，表示“归还”。请同学们练习时注意区分读音。
+
+本次课后，请同学们完成以下练习：
+1.听录音，跟读中文课本第6课所有内容。熟练朗读《绕口令》，注意声调的准确性（下次上课时会有比赛哦）；
+2.完成第6课“汉字书写练习”（见邮件附件）；
+3.如果上周还未完成中文练习册2B第6课的练习，请在下次上课前完成。
+
+12月21日、12月28日和1月4日放假。2025年1月11日恢复上课。希望孩子们能够利用假期时间，多做复习，多说多练。有问题随时联系我。
+
+祝大家节日快乐！明年见！
+
+王振翀
